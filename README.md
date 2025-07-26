@@ -1,1 +1,2 @@
 A R I S E
+HAMZA
